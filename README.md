@@ -1,0 +1,1 @@
+ders denemesi yaptım
